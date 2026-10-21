@@ -224,4 +224,4 @@ Combat Manager is offered as a full free version, which includes all features an
 Don't miss out on the opportunity to elevate your Pathfinder gaming experience. **Download Combat Manager free today and take control of your combats!**
 
 ---
-**Last updated:** 2026-10-20 23:44:51 UTC
+**Last updated:** 2026-10-21 04:21:09 UTC
